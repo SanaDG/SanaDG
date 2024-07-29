@@ -1,4 +1,4 @@
-![View My Full-sized Avatar](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fvirginiaestrell%2Fgithub%2F&psig=AOvVaw0ibNu7Yy4pby39NLgGcuLh&ust=1722355411433000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIDn76jQzIcDFQAAAAAdAAAAABAK)
+![View My Full-sized Avatar](https://www.pinterest.com/pin/308637380698770009/)
 # [Sanjaya Gunawardena]
 
 ![Funny GIF](https://media1.tenor.com/m/X3jJ_r78JlcAAAAC/bobs-burger-tina-belcher.gif)
@@ -50,4 +50,4 @@ _Started in September 2023, France_
 
 ## 📲 How to Reach Me
 
-[![LinkedIn](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.flaticon.com%2Ffree-icon%2Flinkedin_174857&psig=AOvVaw1u0EYsG3xcVn9ocfU7Chfc&ust=1722355298953000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCNC3ktHPzIcDFQAAAAAdAAAAABAE)](www.linkedin.com/in/sanjaya-gunawardena-557765207)
+[![LinkedIn](www.linkedin.com/in/sanjaya-gunawardena-557765207)
