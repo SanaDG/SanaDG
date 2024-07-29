@@ -1,7 +1,12 @@
-![View My Full-sized Avatar](https://www.pinterest.com/pin/308637380698770009/)
+
 # [Sanjaya Gunawardena]
 
 ![Funny GIF](https://media1.tenor.com/m/X3jJ_r78JlcAAAAC/bobs-burger-tina-belcher.gif)
+
+## 🌟 Objective
+- 🌱 Thrive in a supportive and growth-oriented environment
+- 🧠 Utilize and enhance skills in Data Science, Machine Learning, and AI
+- 💡 Gain valuable experience and knowledge in the tech industry
 
 ## 👨‍💻 About Me
 To work in an environment which encourages me to succeed and grow professionally where I can utilize my skills and knowledge appropriately while gaining experience in the field of Data Science, Machine Learning, and AI.
@@ -50,4 +55,5 @@ _Started in September 2023, France_
 
 ## 📲 How to Reach Me
 
-[![LinkedIn](www.linkedin.com/in/sanjaya-gunawardena-557765207)
+- 📧 Email: sanjayadg98rc@gmail.com
+- 📞 Phone: 076 0101055
