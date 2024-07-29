@@ -56,4 +56,4 @@ _Started in September 2023, France_
 ## 📲 How to Reach Me
 
 - 📧 Email: sanjayadg98rc@gmail.com
-- 📞 Phone: 076 0101055
+- 📞 Phone: +33 760101055
